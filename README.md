@@ -1,0 +1,5 @@
+![BI_Capture0](https://github.com/HZAOUDI/Business_Intelligence_Project/assets/125825033/a666b6a8-567c-4764-a1ad-16d30fdce8db)
+![BI_Capture3](https://github.com/HZAOUDI/Business_Intelligence_Project/assets/125825033/664a3dfe-10c6-4abb-95f5-e92684b85414)
+![BI_Capture2](https://github.com/HZAOUDI/Business_Intelligence_Project/assets/125825033/612e53b0-a233-40d5-9bab-2f9cee181547)
+![BI_Capture1](https://github.com/HZAOUDI/Business_Intelligence_Project/assets/125825033/66e1342a-ecb4-4f8b-8484-266b2ab67859)
+![BI_Capture4](https://github.com/HZAOUDI/Business_Intelligence_Project/assets/125825033/51dca393-9a5e-4e91-bb79-9bd87b259f24)
